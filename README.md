@@ -3,3 +3,4 @@ I write short stories, screenplays, and works of interactive fiction with a focu
 My favorite genres are fantasy, comedy, and horror!
 I love collaborating to create unique and immersive stories across various mediums.
 Feel free to reach out with any inquiries, opportunities, or interesting projects in need of a writer!
+You can contact me at justincien4@gmail.com
